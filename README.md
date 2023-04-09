@@ -1,1 +1,2 @@
-Alwin Nocom 
+Alwin Nocom
+nocoma@oregonstate.edu
